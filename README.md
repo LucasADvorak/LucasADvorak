@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Lucas ADvorak 😁
+## Bem-vindo(a) ao perfil do Lucas Sales 😁
 
  <div>
    <a href="https://github.com/LucasADvorak">
